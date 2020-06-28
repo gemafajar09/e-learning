@@ -1,2 +1,2 @@
 # e-learning
-# gema fajar #gemafajar09 #github.com/gemafajar09
+# gema fajar | gemafajar09 | github.com/gemafajar09
